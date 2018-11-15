@@ -1,4 +1,4 @@
-# 2018年发布报告汇总
+# 2018年报告汇总
 
 ![](https://ae01.alicdn.com/kf/HTB11OUFXODxK1RjSsph762HrpXap.png)
 
